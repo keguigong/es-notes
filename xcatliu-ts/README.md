@@ -1,1 +1,0 @@
-Many thanks to @xcatliu https://ts.xcatliu.com/.
